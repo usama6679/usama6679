@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @usama6679
-- 👯 Actively seeking opportunities for Co-op/Intership May-2023
+- 👯 Actively seeking opportunities for Full time OR Co-op/Intership 
 - 👀 I’m interested in Data
 - 🌱I'm currently learning how Machine Learning can increase Business Revenue
 - 💞️ I’m looking to collaborate on where i can utilize my skills
